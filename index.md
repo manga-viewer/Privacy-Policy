@@ -17,7 +17,7 @@ We may provide links to our website or third party websites. Our Privacy Policy 
 ### 5. Amendments.
 We may amend our privacy policy from time to time by posting the amended Policy on our website, without directly informing our users. Therefore we encourage our users to review this policy frequently. TEUK team reserves all rights and interpretation to the Policy and its amendments.
 
-### 6.Contact Us
+### 6. Contact Us
 If there are any questions regarding this privacy policy you may contact us using the information below.
 
 We love hearing your voice. Let's contact us and stay connected!
